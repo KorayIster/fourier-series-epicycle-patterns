@@ -1,9 +1,2 @@
 ##Demonstration Video
-
-
-
-
-
-https://github.com/user-attachments/assets/a4709949-a710-4bb8-b851-93fc973e723b
-
-
+https://github.com/user-attachments/assets/a4f47b6b-dd42-44af-8629-fa8a7e67b7bd
