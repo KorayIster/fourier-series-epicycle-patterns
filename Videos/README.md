@@ -1,1 +1,1 @@
-https://github.com/KorayIster/fourier-series-epicycle-patterns/blob/main/Videos/2026-11-20%2017-22-49.mp4
+##Demonstration Video https://github.com/user-attachments/assets/a4f47b6b-dd42-44af-8629-fa8a7e67b7bd
